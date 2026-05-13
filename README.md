@@ -1,4 +1,4 @@
-# Hola ! ༄٠࣪⭑✦︎₊⊹‧₊˚ ⋅
+# Hola ! ༄٠࣪✦︎₊⊹‧₊˚ ⋅
 
 My name is Xen.
 
